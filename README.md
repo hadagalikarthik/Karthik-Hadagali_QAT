@@ -1,1 +1,0 @@
-# Karthik-Hadagali_QAT
